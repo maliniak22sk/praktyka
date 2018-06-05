@@ -1,0 +1,2 @@
+# praktyka
+projekt na praktyke
